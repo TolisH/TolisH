@@ -1,4 +1,4 @@
-I'm building some shit occasionally 
+bruh
 
 <!---
 TolisH/TolisH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
